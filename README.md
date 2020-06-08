@@ -1,2 +1,2 @@
 # My-Website
-Desighner website kushagra roy
+Designer website kushagra roy
